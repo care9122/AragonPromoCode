@@ -41,7 +41,7 @@ From **LinkedIn profiles** and **resumes** to **social media** and **business po
 
 Claiming your **25% discount** is easy! Follow these simple steps:
 
-1. **Visit Aragon AI:** Go to [Aragon AI](https://aragon.ai/).
+1. **Visit Aragon AI:** Go to [Aragon AI](https://www.aragon.ai/?via=AVA)).
 2. **Upload Your Selfies:** Choose 8-12 clear selfies with different angles and expressions.
 3. **Customize Your Headshots:** Select the desired style, background, and lighting.
 4. **Apply the Promo Code:** Enter **"AVA"** at checkout to get **25% off**.
@@ -72,4 +72,4 @@ Don’t wait! This **limited-time offer** won’t last forever. Head over to **A
 
 📌 **Claim Your Discount Now!**
 
-👉 **[Get 25% Off at Aragon AI with Promo Code "AVA"](https://aragon.ai/)** 🚀
+👉 **[Get 25% Off at Aragon AI with Promo Code "AVA"](https://www.aragon.ai/?via=AVA))** 🚀
